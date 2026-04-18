@@ -1,2 +1,13 @@
-# snake-plant-light-requirements
-Snake plant light requirements guide for healthy indoor growth
+# 🌿 Snake Plant Light Requirements
+
+Snake plants can survive in low light, but proper lighting helps them grow faster and healthier.
+
+👉 [Snake Plant Light Requirements Guide](https://lowlightleaf.com/snake-plant-light-requirements/)
+
+## Ideal Light Conditions
+- Low to bright indirect light
+- Avoid harsh direct sunlight
+- Can tolerate low light
+
+Read full guide here:
+https://lowlightleaf.com/snake-plant-light-requirements/
